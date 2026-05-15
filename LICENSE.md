@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with secure Shotcut for PC | Shotcut for Windows Script | real-time-preview + color-grading, the #1 script. Includes real-time-preview
 
 
 
